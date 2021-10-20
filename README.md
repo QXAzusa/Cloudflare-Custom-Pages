@@ -8,4 +8,4 @@ https://blog.000714.xyz/202012/3041.html
 主页：https://000714.xyz
 
 
-Mail：BlueSky@000714.xyz
+Mail：qianxiao@qxazusa.xyz
